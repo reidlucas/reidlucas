@@ -1,2 +1,2 @@
 ## Reid Lucas
-### UCF Mechanical Engineering
+### Mechanical Engineer | UCF
